@@ -1,1 +1,1 @@
-Creating a new branch is qucick & simple£¡
+Creating a new branch is qucick and simple!
